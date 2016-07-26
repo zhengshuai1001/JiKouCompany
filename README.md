@@ -1,1 +1,2 @@
 # JiKouCompany
+##O(∩_∩)O
