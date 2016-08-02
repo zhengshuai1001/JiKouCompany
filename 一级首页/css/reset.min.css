@@ -1,0 +1,5 @@
+a,blockquote,body,dd,div,dl,dt,fieldset,form,h1,h2,h3,h4,h5,h6,html,img,input,label,li,ol,p,pre,td,th,ul{margin:0;padding:0;border:0;outline:0}
+body{background-color:#fff;font-family:'PingFangSC-Regular ','Microsoft YaHei',Verdana,Arial;font-size:14px}
+ol,ul{list-style:none}
+a{text-decoration:none}
+.common_wrap{width:1180px;margin:0 auto}

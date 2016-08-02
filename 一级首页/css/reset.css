@@ -1,0 +1,30 @@
+/***************************************样式重置开始************************************************/
+body, html, div, blockquote, img, label, p, h1, h2, h3, h4, h5, h6, pre, ul, ol,
+li, dl, dt, dd, form, a, fieldset, input, th, td {
+    margin: 0;
+    padding: 0;
+    border: 0;
+    outline: none;
+}
+body{
+    background-color: #fff;
+    font-family: 'PingFangSC-Regular ', 'Microsoft YaHei' ,'Verdana' ,'Arial';
+    font-size: 14px;
+}
+
+h1, h2, h3, h4, h5, h6 {
+    /*font-size: 100%;*/
+}
+
+ul, ol {
+    list-style: none;
+}
+a{
+    text-decoration: none;
+}
+/***************************************样式重置结束************************************************/
+
+.common_wrap{
+    width: 1180px;
+    margin: 0 auto;
+}
