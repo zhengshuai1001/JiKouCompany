@@ -1,6 +1,7 @@
 # JiKouCompany
 ## O(∩_∩)O
 ## ↖(^ω^)↗
+## hehe
 hello world
 
 最后一天在公司了,时间过得真快.
