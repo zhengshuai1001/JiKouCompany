@@ -15,3 +15,5 @@ hello world
 时间过得真快，转眼间就17年五月16号了
 
 When you wake up in the morning you have two choices: go back to sleep, or wake up and chase those dreams.
+
+Life is like a box of chocolates,you never konw what you're going to get.
