@@ -23,3 +23,5 @@ If we are facing in the right direction, all we have to do is keep on walking.
 You don't have to live your life the way other people expect you to.
 
 :sleepy:
+
+You can be happy or you can be unhappy. It's just according to the way you look at things.
