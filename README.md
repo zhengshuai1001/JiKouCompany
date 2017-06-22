@@ -25,3 +25,5 @@ You don't have to live your life the way other people expect you to.
 :sleepy:
 
 You can be happy or you can be unhappy. It's just according to the way you look at things.
+
+To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment.
