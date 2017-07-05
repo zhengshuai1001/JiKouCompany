@@ -31,3 +31,5 @@ To be yourself in a world that is constantly trying to make you something else i
 If you spend too much time thinking about a thing, you'll never get it done.
 
 Don't compare your beginning to someone else's middle.
+
+The creative adult is the child who survived.
