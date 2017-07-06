@@ -33,3 +33,5 @@ If you spend too much time thinking about a thing, you'll never get it done.
 Don't compare your beginning to someone else's middle.
 
 The creative adult is the child who survived.
+
+Knowing is not enough, we must apply. Willing is not enough, we must do.
