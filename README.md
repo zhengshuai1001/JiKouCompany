@@ -35,3 +35,5 @@ Don't compare your beginning to someone else's middle.
 The creative adult is the child who survived.
 
 Knowing is not enough, we must apply. Willing is not enough, we must do.
+
+It's up to you how far you go. If you don't try, you'll never know!
