@@ -42,3 +42,6 @@ Someone who thinks the world is always cheating him is right. He is missing
 that wonderful feeling of trust in someone or something.
 
 I have not failed. I've just found 10,000 ways that won't work.
+
+:cry::sob::stuck_out_tongue_winking_eye::frowning:
+:innocent::flushed::kissing::sleeping::pensive::grin:
