@@ -40,3 +40,5 @@ It's up to you how far you go. If you don't try, you'll never know!
 
 Someone who thinks the world is always cheating him is right. He is missing
 that wonderful feeling of trust in someone or something.
+
+I have not failed. I've just found 10,000 ways that won't work.
