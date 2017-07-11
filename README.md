@@ -45,3 +45,5 @@ I have not failed. I've just found 10,000 ways that won't work.
 
 :cry::sob::stuck_out_tongue_winking_eye::frowning:
 :innocent::flushed::kissing::sleeping::pensive::grin:
+
+Let your hopes not your hurts shape your future.
