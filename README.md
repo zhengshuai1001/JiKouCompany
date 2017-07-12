@@ -47,3 +47,5 @@ I have not failed. I've just found 10,000 ways that won't work.
 :innocent::flushed::kissing::sleeping::pensive::grin:
 
 Let your hopes not your hurts shape your future.
+
+The fear of death follows from the fear of life. One who lives life fully is prepared to die at any time.
