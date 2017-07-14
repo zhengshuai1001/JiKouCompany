@@ -51,3 +51,5 @@ Let your hopes not your hurts shape your future.
 The fear of death follows from the fear of life. One who lives life fully is prepared to die at any time.
 
 Whatever you're meant to do, do it now. The conditions are always impossible.
+
+Do a little more of what you want to do every day, until your idea becomes what's real.
