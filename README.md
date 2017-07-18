@@ -53,3 +53,5 @@ The fear of death follows from the fear of life. One who lives life fully is pre
 Whatever you're meant to do, do it now. The conditions are always impossible.
 
 Do a little more of what you want to do every day, until your idea becomes what's real.
+
+Beware the barrenness of a busy life.
