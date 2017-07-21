@@ -59,3 +59,5 @@ Beware the barrenness of a busy life.
 A goal is not always meant to be reached, it often serves simply as something to aim at.
 
 Failure is simply the opportunity to begin again, this time more intelligently.
+
+Attitude is a little thing that makes a big difference.
