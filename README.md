@@ -61,3 +61,5 @@ A goal is not always meant to be reached, it often serves simply as something to
 Failure is simply the opportunity to begin again, this time more intelligently.
 
 Attitude is a little thing that makes a big difference.
+
+The journey is the reward.
