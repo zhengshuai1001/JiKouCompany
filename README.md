@@ -67,3 +67,5 @@ The journey is the reward.
 If you cannot find peace within yourself, you will never find it anywhere else.
 
 A person who never made a mistake never tried anything new.
+
+Bravery is the solution to regret.
