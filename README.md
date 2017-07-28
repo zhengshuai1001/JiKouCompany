@@ -71,3 +71,5 @@ A person who never made a mistake never tried anything new.
 Bravery is the solution to regret.
 
 When you have exhausted all possibilities, remember this: you haven't.
+
+If you're not doing what you love, you're wasting your time.
