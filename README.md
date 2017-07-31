@@ -73,3 +73,6 @@ Bravery is the solution to regret.
 When you have exhausted all possibilities, remember this: you haven't.
 
 If you're not doing what you love, you're wasting your time.
+
+Once you replace negative thoughts with positive ones, you'll start having positive results.
+
