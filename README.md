@@ -77,3 +77,5 @@ If you're not doing what you love, you're wasting your time.
 Once you replace negative thoughts with positive ones, you'll start having positive results.
 
 Overcoming procrastination
+
+Don't be pushed by your problems. Be led by your dreams.
