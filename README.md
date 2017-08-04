@@ -79,3 +79,5 @@ Once you replace negative thoughts with positive ones, you'll start having posit
 Overcoming procrastination
 
 Don't be pushed by your problems. Be led by your dreams.
+
+Go ahead, let them judge you.
