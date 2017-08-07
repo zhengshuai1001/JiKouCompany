@@ -81,3 +81,5 @@ Overcoming procrastination
 Don't be pushed by your problems. Be led by your dreams.
 
 Go ahead, let them judge you.
+
+Better to do something imperfectly than to do nothing flawlessly.
