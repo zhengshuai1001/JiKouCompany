@@ -38,6 +38,8 @@ Knowing is not enough, we must apply. Willing is not enough, we must do.
 
 It's up to you how far you go. If you don't try, you'll never know!
 
+What you do today is important because you are exchanging a day of your life for it.
+
 Someone who thinks the world is always cheating him is right. He is missing
 that wonderful feeling of trust in someone or something.
 
