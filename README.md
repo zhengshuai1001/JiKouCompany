@@ -87,3 +87,5 @@ Go ahead, let them judge you.
 Better to do something imperfectly than to do nothing flawlessly.
 
 There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+
+If you fear failure, you will never go anywhere.
