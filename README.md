@@ -89,3 +89,5 @@ Better to do something imperfectly than to do nothing flawlessly.
 There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
 
 If you fear failure, you will never go anywhere.
+
+The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself.
