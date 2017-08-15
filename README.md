@@ -91,3 +91,5 @@ There are only two ways to live your life. One is as though nothing is a miracle
 If you fear failure, you will never go anywhere.
 
 The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself.
+
+One's destination is never a place but rather a new way of looking at things.
