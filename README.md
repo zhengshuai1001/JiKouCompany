@@ -97,3 +97,5 @@ One's destination is never a place but rather a new way of looking at things.
 Always remember that the future comes one day at a time.
 
 The walls we build around us to keep sadness out also keeps out the joy.
+
+Stay hungry,stay foolish.
