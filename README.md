@@ -99,3 +99,5 @@ Always remember that the future comes one day at a time.
 The walls we build around us to keep sadness out also keeps out the joy.
 
 Stay hungry,stay foolish.
+
+Believe in yourself.
