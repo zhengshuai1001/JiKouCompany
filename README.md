@@ -101,3 +101,5 @@ The walls we build around us to keep sadness out also keeps out the joy.
 Stay hungry,stay foolish.
 
 Believe in yourself.
+
+Find a place inside where there's joy, and the joy will burn out the pain.
