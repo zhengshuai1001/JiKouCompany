@@ -107,3 +107,5 @@ Find a place inside where there's joy, and the joy will burn out the pain.
 The primary cause of unhappiness is never the situation but your thoughts about it.
 
 As you think, so shall you become.
+
+Be the friend you wish you had.
