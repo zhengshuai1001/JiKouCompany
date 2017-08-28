@@ -109,3 +109,5 @@ The primary cause of unhappiness is never the situation but your thoughts about 
 As you think, so shall you become.
 
 Be the friend you wish you had.
+
+Never underestimate the ability of a small group of dedicated people to change the world. Indeed, it is the only thing that ever has.
