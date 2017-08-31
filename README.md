@@ -115,3 +115,5 @@ Never underestimate the ability of a small group of dedicated people to change t
 Fear, uncertainty and discomfort are your compasses toward growth.
 
 No one has the power to shatter your dreams unless you give it to them.
+
+Do not overestimate the competition and underestimate yourself. You are better than you think.
