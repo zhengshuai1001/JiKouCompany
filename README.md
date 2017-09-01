@@ -117,3 +117,5 @@ Fear, uncertainty and discomfort are your compasses toward growth.
 No one has the power to shatter your dreams unless you give it to them.
 
 Do not overestimate the competition and underestimate yourself. You are better than you think.
+
+If you don't like where you are, change it. You're not a tree.
