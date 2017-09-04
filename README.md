@@ -121,3 +121,5 @@ Do not overestimate the competition and underestimate yourself. You are better t
 If you don't like where you are, change it. You're not a tree.
 
 You got this. Make it happen.
+
+Jumping from failure to failure with undiminished enthusiasm is the big secret to success.
