@@ -125,3 +125,5 @@ You got this. Make it happen.
 Jumping from failure to failure with undiminished enthusiasm is the big secret to success.
 
 The future belongs to those who believe in the beauty of their dreams.
+
+There is real magic in enthusiasm. It spells the difference between mediocrity and accomplishment.
