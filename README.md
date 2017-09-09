@@ -131,3 +131,5 @@ There is real magic in enthusiasm. It spells the difference between mediocrity a
 Deal with the big while it is still small.
 
 Nothing diminishes anxiety faster than action.
+
+Simplicity is the ultimate sophistication.
