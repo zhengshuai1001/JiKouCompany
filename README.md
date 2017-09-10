@@ -133,3 +133,5 @@ Deal with the big while it is still small.
 Nothing diminishes anxiety faster than action.
 
 Simplicity is the ultimate sophistication.
+
+You can't use up creativity. The more you use, the more you have.
