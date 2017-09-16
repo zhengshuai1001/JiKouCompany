@@ -143,3 +143,5 @@ Do more of what makes you happy.
 Experience is simply the name we give our mistakes.
 
 Use the talents you possess, for the woods would be very silent if no birds sang except the best.
+
+What makes you different or weird—that’s your strength.
