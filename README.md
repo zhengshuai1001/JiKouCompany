@@ -147,3 +147,5 @@ Use the talents you possess, for the woods would be very silent if no birds sang
 What makes you different or weird—that’s your strength.
 
 Today is the most important day of our lives.
+
+Sometimes good things fall apart so better things can fall together.
