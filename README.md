@@ -149,3 +149,5 @@ What makes you different or weird—that’s your strength.
 Today is the most important day of our lives.
 
 Sometimes good things fall apart so better things can fall together.
+
+No one can make you feel inferior without your consent.
