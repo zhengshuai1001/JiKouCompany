@@ -155,3 +155,5 @@ No one can make you feel inferior without your consent.
 Powerful avalanches begin with small shifts.
 
 Within you is a stillness and a sanctuary to which you can retreat at any time and be yourself.
+
+Do small things with great love.
