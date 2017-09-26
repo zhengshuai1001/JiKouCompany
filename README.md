@@ -157,3 +157,5 @@ Powerful avalanches begin with small shifts.
 Within you is a stillness and a sanctuary to which you can retreat at any time and be yourself.
 
 Do small things with great love.
+
+If you lose, don't lose the lesson.
