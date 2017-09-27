@@ -159,3 +159,5 @@ Within you is a stillness and a sanctuary to which you can retreat at any time a
 Do small things with great love.
 
 If you lose, don't lose the lesson.
+
+It always seems impossible until it's done.
