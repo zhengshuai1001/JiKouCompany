@@ -161,3 +161,5 @@ Do small things with great love.
 If you lose, don't lose the lesson.
 
 It always seems impossible until it's done.
+
+This is the real secret to life—to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play.
