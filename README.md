@@ -167,3 +167,5 @@ This is the real secret to life—to be completely engaged with what you are doi
 Never let your fear decide your fate.
 
 A year from now you will wish you had started today.
+
+The secret to your success is found in your daily routine.
