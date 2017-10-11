@@ -169,3 +169,5 @@ Never let your fear decide your fate.
 A year from now you will wish you had started today.
 
 The secret to your success is found in your daily routine.
+
+Without new experiences, something inside of us sleeps. The sleeper must awaken.
