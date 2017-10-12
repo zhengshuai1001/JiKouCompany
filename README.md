@@ -171,3 +171,5 @@ A year from now you will wish you had started today.
 The secret to your success is found in your daily routine.
 
 Without new experiences, something inside of us sleeps. The sleeper must awaken.
+
+You have power over your mind, not outside events. Realize this, and you will find strength.
