@@ -173,3 +173,5 @@ The secret to your success is found in your daily routine.
 Without new experiences, something inside of us sleeps. The sleeper must awaken.
 
 You have power over your mind, not outside events. Realize this, and you will find strength.
+
+If you want something you've never had, you must be willing to do something you've never done.
