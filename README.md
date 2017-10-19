@@ -183,3 +183,5 @@ Never give up on a dream just because of the time it will take to accomplish it.
 Children are wonderfully confident in their own imaginations. Most of us lose this confidence as we grow up.
 
 Have enough courage to trust love one more time and always one more time.
+
+Obsessed is a word that the lazy use to describe the dedicated.
