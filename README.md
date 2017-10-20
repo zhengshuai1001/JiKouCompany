@@ -185,3 +185,5 @@ Children are wonderfully confident in their own imaginations. Most of us lose th
 Have enough courage to trust love one more time and always one more time.
 
 Obsessed is a word that the lazy use to describe the dedicated.
+
+If you get tired, learn to rest, not to quit.
