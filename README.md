@@ -187,3 +187,5 @@ Have enough courage to trust love one more time and always one more time.
 Obsessed is a word that the lazy use to describe the dedicated.
 
 If you get tired, learn to rest, not to quit.
+
+Once you realize how beautiful you are, you will find it hard to keep the company of those who do not.
