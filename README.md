@@ -191,3 +191,5 @@ If you get tired, learn to rest, not to quit.
 Once you realize how beautiful you are, you will find it hard to keep the company of those who do not.
 
 When I let go of what I am, I become what I might be.
+
+The world needs dreamers and the world needs doers. But above all, the world needs dreamers who do.
