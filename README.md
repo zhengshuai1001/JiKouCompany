@@ -195,3 +195,5 @@ When I let go of what I am, I become what I might be.
 The world needs dreamers and the world needs doers. But above all, the world needs dreamers who do.
 
 The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.
+
+Do more of what makes you happy.
