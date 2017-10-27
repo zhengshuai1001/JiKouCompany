@@ -197,3 +197,5 @@ The world needs dreamers and the world needs doers. But above all, the world nee
 The greatest danger for most of us is not that our aim is too high and we miss it, but that it is too low and we reach it.
 
 Do more of what makes you happy.
+
+The world is moving so fast that the person who says it can't be done is generally interrupted by someone doing it.
