@@ -199,3 +199,5 @@ The greatest danger for most of us is not that our aim is too high and we miss i
 Do more of what makes you happy.
 
 The world is moving so fast that the person who says it can't be done is generally interrupted by someone doing it.
+
+Failure is success if you learn from it
