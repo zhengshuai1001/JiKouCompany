@@ -205,3 +205,5 @@ Failure is success if you learn from it
 What weakens us is feeling offended by the deeds and misdeeds of our fellow men and women. Our self-importance requires that we spend most of our lives offended by someone.
 
 The biggest room in the world is room for improvement.
+
+To be wronged is nothing unless you continue to remember it.
