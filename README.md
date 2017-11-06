@@ -207,3 +207,5 @@ What weakens us is feeling offended by the deeds and misdeeds of our fellow men 
 The biggest room in the world is room for improvement.
 
 To be wronged is nothing unless you continue to remember it.
+
+Do the thing you think you cannot do.
