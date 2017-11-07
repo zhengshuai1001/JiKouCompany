@@ -209,3 +209,5 @@ The biggest room in the world is room for improvement.
 To be wronged is nothing unless you continue to remember it.
 
 Do the thing you think you cannot do.
+
+A surplus of effort could overcome a deficit of confidence.
