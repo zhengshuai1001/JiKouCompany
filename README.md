@@ -217,3 +217,5 @@ Every dream begins with a dreamer. Always remember, you have within you the stre
 An essential part of creativity is not being afraid to fail.
 
 Perseverance is not a long race; it is many short races one after another.
+
+People do not seem to realize that their opinion of the world is also a confession of character.
