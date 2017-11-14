@@ -219,3 +219,5 @@ An essential part of creativity is not being afraid to fail.
 Perseverance is not a long race; it is many short races one after another.
 
 People do not seem to realize that their opinion of the world is also a confession of character.
+
+We either make ourselves miserable, or we make ourselves strong. The amount of work is the same.
