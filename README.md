@@ -225,3 +225,5 @@ We either make ourselves miserable, or we make ourselves strong. The amount of w
 As long as you're being a copycat, you will never be the best copycat.
 
 Don't let yesterday use up too much of today.
+
+In matters of style swim with the current. In matters of principle, stand like a rock.
