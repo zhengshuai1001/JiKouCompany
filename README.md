@@ -229,3 +229,5 @@ Don't let yesterday use up too much of today.
 In matters of style swim with the current. In matters of principle, stand like a rock.
 
 I can accept failure. Everyone fails at something. But I can’t accept not trying.
+
+The master has failed more times than the beginner has even tried.
