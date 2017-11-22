@@ -231,3 +231,5 @@ In matters of style swim with the current. In matters of principle, stand like a
 I can accept failure. Everyone fails at something. But I can’t accept not trying.
 
 The master has failed more times than the beginner has even tried.
+
+If you never did, you should. These things are fun and fun is good.
