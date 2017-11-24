@@ -235,3 +235,5 @@ The master has failed more times than the beginner has even tried.
 If you never did, you should. These things are fun and fun is good.
 
 It does not matter how slowly you go as long as you do not stop.
+
+The cave you fear to enter holds the treasure that you seek.
