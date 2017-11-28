@@ -239,3 +239,5 @@ It does not matter how slowly you go as long as you do not stop.
 The cave you fear to enter holds the treasure that you seek.
 
 Do what you love, not what you think you're supposed to do.
+
+Every moment you live in the past is a moment you waste in the present.
