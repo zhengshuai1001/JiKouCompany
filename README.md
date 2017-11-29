@@ -241,3 +241,5 @@ The cave you fear to enter holds the treasure that you seek.
 Do what you love, not what you think you're supposed to do.
 
 Every moment you live in the past is a moment you waste in the present.
+
+Develop success from failures. Discouragement and failure are two of the surest stepping stones to success.
