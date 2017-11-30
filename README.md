@@ -243,3 +243,5 @@ Do what you love, not what you think you're supposed to do.
 Every moment you live in the past is a moment you waste in the present.
 
 Develop success from failures. Discouragement and failure are two of the surest stepping stones to success.
+
+Be who you are and say what you feel, because those who mind don't matter and those who matter don't mind.
