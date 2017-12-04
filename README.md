@@ -247,3 +247,5 @@ Develop success from failures. Discouragement and failure are two of the surest 
 Be who you are and say what you feel, because those who mind don't matter and those who matter don't mind.
 
 There are seven days in the week and someday isn't one of them.
+
+The right and wrong answers should come from your heart.
