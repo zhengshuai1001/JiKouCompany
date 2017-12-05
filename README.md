@@ -249,3 +249,5 @@ Be who you are and say what you feel, because those who mind don't matter and th
 There are seven days in the week and someday isn't one of them.
 
 The right and wrong answers should come from your heart.
+
+Muddy water is best cleared by leaving it alone.
