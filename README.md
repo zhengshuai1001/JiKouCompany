@@ -254,3 +254,4 @@ Muddy water is best cleared by leaving it alone.
 
 Approach the game with no preset agendas and you'll probably come away surprised at your overall efforts.
 
+The bigger the dream, the more important the team.
