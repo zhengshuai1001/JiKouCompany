@@ -257,3 +257,5 @@ Approach the game with no preset agendas and you'll probably come away surprised
 The bigger the dream, the more important the team.
 
 Do what you feel in your heart to be right. You’ll be criticized anyway.
+
+If you want to fly, give up everything that weighs you down.
