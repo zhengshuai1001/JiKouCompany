@@ -261,3 +261,5 @@ Do what you feel in your heart to be right. You’ll be criticized anyway.
 If you want to fly, give up everything that weighs you down.
 
 The penalty for procrastination is the loss of hopes and dreams.
+
+Failure is just practice for success.
