@@ -265,3 +265,6 @@ The penalty for procrastination is the loss of hopes and dreams.
 Failure is just practice for success.
 
 The mind, once stretched by a new idea, never regains its original dimensions.
+
+Time you enjoy wasting is not wasted time.
+
