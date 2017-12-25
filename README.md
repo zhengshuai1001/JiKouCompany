@@ -268,3 +268,6 @@ The mind, once stretched by a new idea, never regains its original dimensions.
 
 Time you enjoy wasting is not wasted time.
 
+A pessimist sees the difficulty in every opportunity; an optimist
+sees the opportunity in every difficulty.
+
