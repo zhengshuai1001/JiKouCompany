@@ -271,3 +271,4 @@ Time you enjoy wasting is not wasted time.
 A pessimist sees the difficulty in every opportunity; an optimist
 sees the opportunity in every difficulty.
 
+Everything that irritates us about others can lead us to an understanding of ourselves.
