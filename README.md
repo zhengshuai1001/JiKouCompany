@@ -272,3 +272,5 @@ A pessimist sees the difficulty in every opportunity; an optimist
 sees the opportunity in every difficulty.
 
 Everything that irritates us about others can lead us to an understanding of ourselves.
+
+It is our attitude at the beginning of a difficult task which, more than anything else, will affect its successful outcome.
