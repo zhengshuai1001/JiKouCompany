@@ -274,3 +274,5 @@ sees the opportunity in every difficulty.
 Everything that irritates us about others can lead us to an understanding of ourselves.
 
 It is our attitude at the beginning of a difficult task which, more than anything else, will affect its successful outcome.
+
+Be who you were created to be, and you will set the world on fire.
