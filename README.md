@@ -278,3 +278,5 @@ It is our attitude at the beginning of a difficult task which, more than anythin
 Be who you were created to be, and you will set the world on fire.
 
 Forgiveness is a gift you give yourself.
+
+Never dull your shine for somebody else.
