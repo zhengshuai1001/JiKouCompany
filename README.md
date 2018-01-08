@@ -280,3 +280,5 @@ Be who you were created to be, and you will set the world on fire.
 Forgiveness is a gift you give yourself.
 
 Never dull your shine for somebody else.
+
+No matter what people tell you, words and ideas can change the world.
