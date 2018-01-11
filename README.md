@@ -284,3 +284,5 @@ Never dull your shine for somebody else.
 No matter what people tell you, words and ideas can change the world.
 
 Our dreams can come true if we have the courage to pursue them.
+
+The journey of a thousand miles begins with a single step.
