@@ -286,3 +286,5 @@ No matter what people tell you, words and ideas can change the world.
 Our dreams can come true if we have the courage to pursue them.
 
 The journey of a thousand miles begins with a single step.
+
+Success isn't about being the best. It's about always getting better.
