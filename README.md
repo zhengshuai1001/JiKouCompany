@@ -288,3 +288,5 @@ Our dreams can come true if we have the courage to pursue them.
 The journey of a thousand miles begins with a single step.
 
 Success isn't about being the best. It's about always getting better.
+
+The struggle ends when the gratitude begins.
