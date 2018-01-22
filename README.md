@@ -290,3 +290,5 @@ The journey of a thousand miles begins with a single step.
 Success isn't about being the best. It's about always getting better.
 
 The struggle ends when the gratitude begins.
+
+When you judge others, you do not define them; you define yourself.
