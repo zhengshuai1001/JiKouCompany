@@ -294,3 +294,5 @@ The struggle ends when the gratitude begins.
 When you judge others, you do not define them; you define yourself.
 
 It's not the daily increase but daily decrease. Hack away at the unessential.
+
+First they ignore you. Then they laugh at you. Then they fight you. Then you win.
