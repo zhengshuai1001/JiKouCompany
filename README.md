@@ -296,3 +296,5 @@ When you judge others, you do not define them; you define yourself.
 It's not the daily increase but daily decrease. Hack away at the unessential.
 
 First they ignore you. Then they laugh at you. Then they fight you. Then you win.
+
+There are no foreign lands. It is the traveler only who is foreign.
