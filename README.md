@@ -300,3 +300,5 @@ First they ignore you. Then they laugh at you. Then they fight you. Then you win
 There are no foreign lands. It is the traveler only who is foreign.
 
 Speak in such a way that others love to listen to you. Listen in such a way that others love to speak to you.
+
+If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes.
