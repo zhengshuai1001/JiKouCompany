@@ -304,3 +304,5 @@ Speak in such a way that others love to listen to you. Listen in such a way that
 If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes.
 
 This is your life. Do what you love, and do it often.
+
+What worries you masters you.
