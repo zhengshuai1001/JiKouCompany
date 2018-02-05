@@ -308,3 +308,5 @@ This is your life. Do what you love, and do it often.
 What worries you masters you.
 
 Don't let a bad day make you feel like you have a bad life.
+
+Every person is a new door to a different world.
