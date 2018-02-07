@@ -312,3 +312,5 @@ Don't let a bad day make you feel like you have a bad life.
 Every person is a new door to a different world.
 
 Continuous effort, not strength or intelligence, is the key to unlocking our potential.
+
+Never waste a minute thinking about people you don't like.
