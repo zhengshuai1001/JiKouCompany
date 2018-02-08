@@ -314,3 +314,5 @@ Every person is a new door to a different world.
 Continuous effort, not strength or intelligence, is the key to unlocking our potential.
 
 Never waste a minute thinking about people you don't like.
+
+If I quit now, I will soon be back to where I started. And when I started I was desperately wishing to be where I am now.
