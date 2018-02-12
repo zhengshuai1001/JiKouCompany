@@ -320,3 +320,5 @@ If I quit now, I will soon be back to where I started. And when I started I was 
 In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists
 
 Striving for excellence motivates you; striving for perfection is demoralizing.
+
+All things are difficult before they are easy.
