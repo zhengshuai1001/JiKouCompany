@@ -324,3 +324,5 @@ Striving for excellence motivates you; striving for perfection is demoralizing.
 All things are difficult before they are easy.
 
 I am going to work soon keep it up
+
+It doesn’t matter where you are, you are nowhere compared to where you can go.
