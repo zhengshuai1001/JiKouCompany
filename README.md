@@ -326,3 +326,6 @@ All things are difficult before they are easy.
 I am going to work soon keep it up
 
 It doesn’t matter where you are, you are nowhere compared to where you can go.
+
+So many of our dreams at first seem impossible. Then they seem improbable.
+And then, when we summon the will, they soon become inevitable.
