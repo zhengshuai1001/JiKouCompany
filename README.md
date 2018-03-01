@@ -329,3 +329,5 @@ It doesn’t matter where you are, you are nowhere compared to where you can go.
 
 So many of our dreams at first seem impossible. Then they seem improbable.
 And then, when we summon the will, they soon become inevitable.
+
+If you cannot do great things, do small things in a great way.
