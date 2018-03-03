@@ -333,3 +333,5 @@ And then, when we summon the will, they soon become inevitable.
 If you cannot do great things, do small things in a great way.
 
 Don't limit your challenges - challenge your limits.
+
+Be slow to promise and quick to perform.
