@@ -335,3 +335,5 @@ If you cannot do great things, do small things in a great way.
 Don't limit your challenges - challenge your limits.
 
 Be slow to promise and quick to perform.
+
+The death of a dream is the day that you stop believing in the work it takes to get there.
