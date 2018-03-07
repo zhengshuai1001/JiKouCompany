@@ -339,3 +339,5 @@ Be slow to promise and quick to perform.
 The death of a dream is the day that you stop believing in the work it takes to get there.
 
 Incredible things can be done simply if we are committed to making them happen.
+
+Be a practical dreamer, backed by action.
