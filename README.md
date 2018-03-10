@@ -345,3 +345,5 @@ Be a practical dreamer, backed by action.
 If you can dream it, you can do it.
 
 We deem those happy who from the experience of life have learned to bear its ills without being overcome by them.
+
+The past is done. The future has plenty of room for change.
