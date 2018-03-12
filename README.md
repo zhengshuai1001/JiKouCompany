@@ -347,3 +347,5 @@ If you can dream it, you can do it.
 We deem those happy who from the experience of life have learned to bear its ills without being overcome by them.
 
 The past is done. The future has plenty of room for change.
+
+The secret of change is to focus all of your energy, not on fighting the old but on building the new.
