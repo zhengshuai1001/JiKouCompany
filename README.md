@@ -349,3 +349,5 @@ We deem those happy who from the experience of life have learned to bear its ill
 The past is done. The future has plenty of room for change.
 
 The secret of change is to focus all of your energy, not on fighting the old but on building the new.
+
+Never bend your head. Always hold it high. Look the world straight in the face.
