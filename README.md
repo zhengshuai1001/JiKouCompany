@@ -351,3 +351,5 @@ The past is done. The future has plenty of room for change.
 The secret of change is to focus all of your energy, not on fighting the old but on building the new.
 
 Never bend your head. Always hold it high. Look the world straight in the face.
+
+If you don't like something, change it. If you can't change it, change your attitude. Don't complain.
