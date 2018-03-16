@@ -355,3 +355,5 @@ Never bend your head. Always hold it high. Look the world straight in the face.
 If you don't like something, change it. If you can't change it, change your attitude. Don't complain.
 
 Whenever you see a successful business, someone once made a courageous decision.
+
+A wet man does not fear the rain.
