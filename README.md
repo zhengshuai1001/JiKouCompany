@@ -357,3 +357,5 @@ If you don't like something, change it. If you can't change it, change your atti
 Whenever you see a successful business, someone once made a courageous decision.
 
 A wet man does not fear the rain.
+
+Mistakes are the portals of discovery.
