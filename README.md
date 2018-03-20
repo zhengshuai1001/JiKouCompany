@@ -359,3 +359,5 @@ Whenever you see a successful business, someone once made a courageous decision.
 A wet man does not fear the rain.
 
 Mistakes are the portals of discovery.
+
+The only real mistake is the one from which we learn nothing.
