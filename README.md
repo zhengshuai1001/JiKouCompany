@@ -361,3 +361,5 @@ A wet man does not fear the rain.
 Mistakes are the portals of discovery.
 
 The only real mistake is the one from which we learn nothing.
+
+Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
