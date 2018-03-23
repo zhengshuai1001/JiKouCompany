@@ -365,3 +365,5 @@ The only real mistake is the one from which we learn nothing.
 Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
 
 The first step to accepting yourself is to stop comparing yourself to others.
+
+The reason why people give up so fast is because they tend to look at how far they still have to go, instead of how far they have gotten.
