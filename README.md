@@ -371,3 +371,5 @@ The reason why people give up so fast is because they tend to look at how far th
 What gets measured gets managed.
 
 Never look back unless you are planning to go that way.
+
+Lead with your strengths, not your weaknesses.
