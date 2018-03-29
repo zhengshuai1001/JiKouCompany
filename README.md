@@ -373,3 +373,5 @@ What gets measured gets managed.
 Never look back unless you are planning to go that way.
 
 Lead with your strengths, not your weaknesses.
+
+We may encounter many defeats but we must not be defeated.
