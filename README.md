@@ -377,3 +377,6 @@ Lead with your strengths, not your weaknesses.
 We may encounter many defeats but we must not be defeated.
 
 Always be yourself, express yourself, have faith in yourself. Do not go out and look for a successful personality and duplicate it.
+
+People who are unable to motivate themselves must be content with mediocrity no matter how impressive their other talents
+
