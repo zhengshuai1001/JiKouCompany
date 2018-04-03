@@ -380,3 +380,4 @@ Always be yourself, express yourself, have faith in yourself. Do not go out and 
 
 People who are unable to motivate themselves must be content with mediocrity no matter how impressive their other talents
 
+You never know how strong you are, until being strong is your only choice.
