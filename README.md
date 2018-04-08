@@ -383,3 +383,5 @@ People who are unable to motivate themselves must be content with mediocrity no 
 You never know how strong you are, until being strong is your only choice.
 
 You don't have to be great to start, but you have to start to be great.
+
+Be weird. Your strangeness is your magic.
