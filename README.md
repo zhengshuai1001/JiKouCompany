@@ -387,3 +387,5 @@ You don't have to be great to start, but you have to start to be great.
 Be weird. Your strangeness is your magic.
 
 On your journey through life, make sure your biography has at least one extraordinary chapter.
+
+Anyone who stops learning is old.
