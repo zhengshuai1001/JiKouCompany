@@ -389,3 +389,5 @@ Be weird. Your strangeness is your magic.
 On your journey through life, make sure your biography has at least one extraordinary chapter.
 
 Anyone who stops learning is old.
+
+If you want to go fast, go alone. If you want to go far, bring others along.
