@@ -391,3 +391,5 @@ On your journey through life, make sure your biography has at least one extraord
 Anyone who stops learning is old.
 
 If you want to go fast, go alone. If you want to go far, bring others along.
+
+Your value doesn't decrease based on someone's inability to see your worth.
