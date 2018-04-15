@@ -395,3 +395,5 @@ If you want to go fast, go alone. If you want to go far, bring others along.
 Your value doesn't decrease based on someone's inability to see your worth.
 
 The key is not to prioritize what's on your schedule, but to schedule your priorities.
+
+Progress lies not in enhancing what is, but in advancing toward what will be.
