@@ -399,3 +399,5 @@ The key is not to prioritize what's on your schedule, but to schedule your prior
 Progress lies not in enhancing what is, but in advancing toward what will be.
 
 Pleasure in the job puts perfection in the work.
+
+Launch and learn. Everything is progress.
