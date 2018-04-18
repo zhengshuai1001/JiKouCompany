@@ -401,3 +401,5 @@ Progress lies not in enhancing what is, but in advancing toward what will be.
 Pleasure in the job puts perfection in the work.
 
 Launch and learn. Everything is progress.
+
+There is no small act of kindness. Every compassionate act makes large the world.
