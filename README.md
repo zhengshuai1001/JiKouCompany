@@ -403,3 +403,5 @@ Pleasure in the job puts perfection in the work.
 Launch and learn. Everything is progress.
 
 There is no small act of kindness. Every compassionate act makes large the world.
+
+Don’t go through life, grow through life.
