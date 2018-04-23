@@ -407,3 +407,5 @@ There is no small act of kindness. Every compassionate act makes large the world
 Don’t go through life, grow through life.
 
 Don't let small minds convince you that your dreams are too big.
+
+The way to get started is to quit talking and begin doing.
