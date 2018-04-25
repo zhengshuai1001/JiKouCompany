@@ -411,3 +411,5 @@ Don't let small minds convince you that your dreams are too big.
 The way to get started is to quit talking and begin doing.
 
 Don't let perfection become procrastination. Do it now.
+
+Live your dream, and share your passion.
