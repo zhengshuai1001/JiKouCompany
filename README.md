@@ -413,3 +413,5 @@ The way to get started is to quit talking and begin doing.
 Don't let perfection become procrastination. Do it now.
 
 Live your dream, and share your passion.
+
+A goal without a plan is only a wish.
