@@ -415,3 +415,5 @@ Don't let perfection become procrastination. Do it now.
 Live your dream, and share your passion.
 
 A goal without a plan is only a wish.
+
+The longer we dwell on our misfortunes, the greater is their power to harm us.
