@@ -419,3 +419,5 @@ A goal without a plan is only a wish.
 The longer we dwell on our misfortunes, the greater is their power to harm us.
 
 Reflect upon your blessings, of which everyone has plenty, not on your past misfortunes, of which everyone has some.
+
+A head full of fears has no space for dreams.
