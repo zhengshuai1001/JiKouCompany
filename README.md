@@ -423,3 +423,5 @@ Reflect upon your blessings, of which everyone has plenty, not on your past misf
 A head full of fears has no space for dreams.
 
 Never give up, for that is just the place and time that the tide will turn.
+
+If you're going through hell, keep going.
