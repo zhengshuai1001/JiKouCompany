@@ -425,3 +425,5 @@ A head full of fears has no space for dreams.
 Never give up, for that is just the place and time that the tide will turn.
 
 If you're going through hell, keep going.
+
+The problem is not the problem. The problem is your attitude about the problem.
