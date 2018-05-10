@@ -431,3 +431,5 @@ The problem is not the problem. The problem is your attitude about the problem.
 Difficult roads often lead to beautiful destinations.
 
 If you want to awaken all of humanity, awaken all of yourself.
+
+A hero is one who knows how to hang on for one minute longer.
