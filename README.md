@@ -437,3 +437,5 @@ A hero is one who knows how to hang on for one minute longer.
 Keep your goals away from the trolls.
 
 Beware the barrenness of a busy life.
+
+In the midst of movement and chaos, keep stillness inside of you.
