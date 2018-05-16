@@ -439,3 +439,5 @@ Keep your goals away from the trolls.
 Beware the barrenness of a busy life.
 
 In the midst of movement and chaos, keep stillness inside of you.
+
+Create something today even if it sucks.
