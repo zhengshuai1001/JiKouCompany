@@ -444,3 +444,5 @@ Create something today even if it sucks.
 
 Of all the things that can boost emotions, motivation, and perceptions during a workday,
 the single most important is making progress in meaningful work.
+
+Nothing can dim the light which shines from within.
