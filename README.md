@@ -446,3 +446,5 @@ Of all the things that can boost emotions, motivation, and perceptions during a 
 the single most important is making progress in meaningful work.
 
 Nothing can dim the light which shines from within.
+
+Life isn’t about finding yourself. Life is about creating yourself.
