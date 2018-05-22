@@ -448,3 +448,5 @@ the single most important is making progress in meaningful work.
 Nothing can dim the light which shines from within.
 
 Life isn’t about finding yourself. Life is about creating yourself.
+
+Courage isn't the absence of fear, but an urgent impulse to do something despite fear.
