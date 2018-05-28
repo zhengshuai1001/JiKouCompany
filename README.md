@@ -454,3 +454,5 @@ Courage isn't the absence of fear, but an urgent impulse to do something despite
 Your big opportunity may be right where you are now.
 
 The best way to cheer yourself up is to try to cheer somebody else up.
+
+Luck is what happens when preparation meets opportunity.
