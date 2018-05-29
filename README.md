@@ -456,3 +456,5 @@ Your big opportunity may be right where you are now.
 The best way to cheer yourself up is to try to cheer somebody else up.
 
 Luck is what happens when preparation meets opportunity.
+
+Adventure may hurt you, but monotony will kill you.
