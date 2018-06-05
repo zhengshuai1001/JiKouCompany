@@ -465,3 +465,5 @@ Your dreams don't work unless you do.
 
 To understand and be understood, those are among life’s greatest gifts,
 and every interaction is an opportunity to exchange them.
+
+The best way to find out if you can trust somebody is to trust them.
