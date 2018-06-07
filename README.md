@@ -470,3 +470,5 @@ The best way to find out if you can trust somebody is to trust them.
 
 There is no duty we so much underrate as the duty of being happy.
 By being happy we sow anonymous benefits upon the world.
+
+It's a helluva start, being able to recognize what makes you happy.
