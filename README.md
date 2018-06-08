@@ -472,3 +472,5 @@ There is no duty we so much underrate as the duty of being happy.
 By being happy we sow anonymous benefits upon the world.
 
 It's a helluva start, being able to recognize what makes you happy.
+
+Keep smiling, because life is a beautiful thing and there's so much to smile about.
