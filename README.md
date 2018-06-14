@@ -476,3 +476,5 @@ It's a helluva start, being able to recognize what makes you happy.
 Keep smiling, because life is a beautiful thing and there's so much to smile about.
 
 What the caterpillar calls the end, the rest of the world calls a butterfly.
+
+Spread love everywhere you go. Let no one ever come to you without leaving happier
