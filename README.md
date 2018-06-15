@@ -478,3 +478,5 @@ Keep smiling, because life is a beautiful thing and there's so much to smile abo
 What the caterpillar calls the end, the rest of the world calls a butterfly.
 
 Spread love everywhere you go. Let no one ever come to you without leaving happier
+
+The best way to predict the future is to invent it.
