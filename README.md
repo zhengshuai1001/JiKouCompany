@@ -484,3 +484,5 @@ The best way to predict the future is to invent it.
 If you change nothing, nothing will change
 
 Adventure is worthwhile in itself.
+
+Let go of those who bring you down and surround yourself with those who bring out the best in you.
