@@ -486,3 +486,5 @@ If you change nothing, nothing will change
 Adventure is worthwhile in itself.
 
 Let go of those who bring you down and surround yourself with those who bring out the best in you.
+
+Be curious about everything. Never stop learning. Never stop growing.
