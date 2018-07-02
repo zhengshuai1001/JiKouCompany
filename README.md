@@ -492,3 +492,5 @@ Be curious about everything. Never stop learning. Never stop growing.
 The only thing standing between you and your goal is the story you keep telling yourself as to why you can't achieve it.
 
 Whether you think you can or you think you can't, you are right.
+
+It is not because things are difficult that we do not dare; it is because we do not dare that they are difficult.
