@@ -494,3 +494,5 @@ The only thing standing between you and your goal is the story you keep telling 
 Whether you think you can or you think you can't, you are right.
 
 It is not because things are difficult that we do not dare; it is because we do not dare that they are difficult.
+
+Know well what leads you forward and what holds you back, and choose the path that leads you to wisdom.
