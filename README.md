@@ -496,3 +496,5 @@ Whether you think you can or you think you can't, you are right.
 It is not because things are difficult that we do not dare; it is because we do not dare that they are difficult.
 
 Know well what leads you forward and what holds you back, and choose the path that leads you to wisdom.
+
+Breathe. Take care. Stand still for a minute. What you are looking for might just be looking for you too.
