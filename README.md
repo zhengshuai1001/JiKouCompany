@@ -500,3 +500,5 @@ Know well what leads you forward and what holds you back, and choose the path th
 Breathe. Take care. Stand still for a minute. What you are looking for might just be looking for you too.
 
 What would life be if we had no courage to attempt anything.
+
+Use only that which works, and take it from any place you can find it.
