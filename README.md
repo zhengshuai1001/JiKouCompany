@@ -502,3 +502,5 @@ Breathe. Take care. Stand still for a minute. What you are looking for might jus
 What would life be if we had no courage to attempt anything.
 
 Use only that which works, and take it from any place you can find it.
+
+Try and fail, but don't fail to try.
