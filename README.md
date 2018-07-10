@@ -504,3 +504,5 @@ What would life be if we had no courage to attempt anything.
 Use only that which works, and take it from any place you can find it.
 
 Try and fail, but don't fail to try.
+
+If you can imagine it, you can achieve it. If you can dream it, you can become it.
