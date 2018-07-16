@@ -508,3 +508,6 @@ Try and fail, but don't fail to try.
 If you can imagine it, you can achieve it. If you can dream it, you can become it.
 
 Always remember you are braver than you believe, stronger than you seem, and smarter than you think
+
+If you have a dream, don’t just sit there. Gather courage to believe that
+you can succeed and leave no stone unturned to make it a reality.
