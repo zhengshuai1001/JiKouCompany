@@ -511,3 +511,5 @@ Always remember you are braver than you believe, stronger than you seem, and sma
 
 If you have a dream, don’t just sit there. Gather courage to believe that
 you can succeed and leave no stone unturned to make it a reality.
+
+Life is a series of building, testing, changing and iterating.
