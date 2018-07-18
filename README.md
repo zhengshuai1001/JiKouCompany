@@ -513,3 +513,5 @@ If you have a dream, don’t just sit there. Gather courage to believe that
 you can succeed and leave no stone unturned to make it a reality.
 
 Life is a series of building, testing, changing and iterating.
+
+If you can change your mind, you can change your life.
