@@ -515,3 +515,5 @@ you can succeed and leave no stone unturned to make it a reality.
 Life is a series of building, testing, changing and iterating.
 
 If you can change your mind, you can change your life.
+
+Obstacles are those frightful things you see when you take your eyes off your goals.
