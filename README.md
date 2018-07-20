@@ -517,3 +517,5 @@ Life is a series of building, testing, changing and iterating.
 If you can change your mind, you can change your life.
 
 Obstacles are those frightful things you see when you take your eyes off your goals.
+
+Wherever you go, no matter what the weather, always bring your own sunshine.
