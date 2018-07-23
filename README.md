@@ -519,3 +519,5 @@ If you can change your mind, you can change your life.
 Obstacles are those frightful things you see when you take your eyes off your goals.
 
 Wherever you go, no matter what the weather, always bring your own sunshine.
+
+The greatest project you'll ever work on is you.
