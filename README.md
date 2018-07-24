@@ -521,3 +521,5 @@ Obstacles are those frightful things you see when you take your eyes off your go
 Wherever you go, no matter what the weather, always bring your own sunshine.
 
 The greatest project you'll ever work on is you.
+
+We tend to judge others by their behavior, and ourselves by our intentions.
