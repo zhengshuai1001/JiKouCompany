@@ -523,3 +523,5 @@ Wherever you go, no matter what the weather, always bring your own sunshine.
 The greatest project you'll ever work on is you.
 
 We tend to judge others by their behavior, and ourselves by our intentions.
+
+To be free is not merely to cast off one's chains, but to live in a way that respects and enhances the freedom of others.
