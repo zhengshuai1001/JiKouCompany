@@ -14,6 +14,16 @@ hello world
 
 时间过得真快，转眼间就17年五月16号了
 
+辞职了
+
+一年四个月的画客网公司生涯结束了
+
+第二份工作结束了
+
+一年来收获很多，有欢笑，有泪水，有记忆
+
+人生就是一段段的旅程，终于要向下一站走去了。不要怕，勇敢前行。
+
 When you wake up in the morning you have two choices: go back to sleep, or wake up and chase those dreams.
 
 Life is like a box of chocolates,you never konw what you're going to get.
