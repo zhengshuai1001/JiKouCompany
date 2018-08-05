@@ -539,3 +539,5 @@ To be free is not merely to cast off one's chains, but to live in a way that res
 Success isn't about how your life looks to others. It's about how it feels to you.
 
 Love the life you live. Live the life you love.
+
+A person who never made a mistake never tried anything new.
