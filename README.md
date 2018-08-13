@@ -541,3 +541,6 @@ Success isn't about how your life looks to others. It's about how it feels to yo
 Love the life you live. Live the life you love.
 
 A person who never made a mistake never tried anything new.
+
+Life is a series of natural and spontaneous changes. Don't resist them; that only creates sorrow.
+Let reality be reality. Let things flow naturally forward in whatever way they like.
