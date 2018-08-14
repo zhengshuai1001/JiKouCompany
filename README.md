@@ -544,3 +544,5 @@ A person who never made a mistake never tried anything new.
 
 Life is a series of natural and spontaneous changes. Don't resist them; that only creates sorrow.
 Let reality be reality. Let things flow naturally forward in whatever way they like.
+
+I can accept failure. Everyone fails at something. But I can’t accept not trying.
