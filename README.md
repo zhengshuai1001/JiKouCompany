@@ -546,3 +546,5 @@ Life is a series of natural and spontaneous changes. Don't resist them; that onl
 Let reality be reality. Let things flow naturally forward in whatever way they like.
 
 I can accept failure. Everyone fails at something. But I can’t accept not trying.
+
+Live in the present and make it so beautiful that it’s worth remembering.
