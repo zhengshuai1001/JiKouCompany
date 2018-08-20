@@ -548,3 +548,6 @@ Let reality be reality. Let things flow naturally forward in whatever way they l
 I can accept failure. Everyone fails at something. But I can’t accept not trying.
 
 Live in the present and make it so beautiful that it’s worth remembering.
+
+Impossible is just a big word thrown around by small men and women who find it easier to live
+in the world they've been given than to explore the power they have to change it.
