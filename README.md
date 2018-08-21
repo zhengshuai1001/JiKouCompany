@@ -551,3 +551,6 @@ Live in the present and make it so beautiful that it’s worth remembering.
 
 Impossible is just a big word thrown around by small men and women who find it easier to live
 in the world they've been given than to explore the power they have to change it.
+
+Courage doesn't always roar. Sometimes courage is the quiet voice at
+the end of the day whispering, 'I will try again tomorrow.
