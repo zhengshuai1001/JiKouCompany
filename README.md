@@ -554,3 +554,5 @@ in the world they've been given than to explore the power they have to change it
 
 Courage doesn't always roar. Sometimes courage is the quiet voice at
 the end of the day whispering, 'I will try again tomorrow.
+
+What would life be if we had no courage to attempt anything?
