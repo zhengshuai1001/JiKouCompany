@@ -558,3 +558,6 @@ the end of the day whispering, 'I will try again tomorrow.
 What would life be if we had no courage to attempt anything?
 
 The brain is like a muscle. When it is in use we feel very good. Understanding is joyous.
+
+Our greatest weakness lies in giving up. The most certain way
+to succeed is always to try just one more time.
