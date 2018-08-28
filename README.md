@@ -24,6 +24,8 @@ hello world
 
 人生就是一段段的旅程，终于要向下一站走去了。不要怕，勇敢前行。
 
+8月28日了，学习进度还是好慢，时间紧张
+
 When you wake up in the morning you have two choices: go back to sleep, or wake up and chase those dreams.
 
 Life is like a box of chocolates,you never konw what you're going to get.
