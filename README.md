@@ -563,3 +563,5 @@ The brain is like a muscle. When it is in use we feel very good. Understanding i
 
 Our greatest weakness lies in giving up. The most certain way
 to succeed is always to try just one more time.
+
+It always seems impossible until it's done.
