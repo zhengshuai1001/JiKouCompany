@@ -565,3 +565,6 @@ Our greatest weakness lies in giving up. The most certain way
 to succeed is always to try just one more time.
 
 It always seems impossible until it's done.
+
+Your mind is a powerful thing. When you fill it with positive
+thoughts, your life will start to change.
