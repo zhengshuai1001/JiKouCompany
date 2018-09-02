@@ -568,3 +568,5 @@ It always seems impossible until it's done.
 
 Your mind is a powerful thing. When you fill it with positive
 thoughts, your life will start to change.
+
+We realize the importance of our voices only when we are silenced.
