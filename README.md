@@ -570,3 +570,5 @@ Your mind is a powerful thing. When you fill it with positive
 thoughts, your life will start to change.
 
 We realize the importance of our voices only when we are silenced.
+
+There are no foreign lands. It is the traveler only who is foreign.
