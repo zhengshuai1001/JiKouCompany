@@ -572,3 +572,6 @@ thoughts, your life will start to change.
 We realize the importance of our voices only when we are silenced.
 
 There are no foreign lands. It is the traveler only who is foreign.
+
+Ruin is a gift. Ruin is the road
+to transformation.
