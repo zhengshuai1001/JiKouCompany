@@ -579,3 +579,5 @@ to transformation.
 The meaning of life is to find your gift. The purpose of life is to give it away.
 
 Beware the barrenness of a busy life.
+
+Do not wish for an easy life. Wish for the strength to endure a difficult one.
