@@ -577,3 +577,5 @@ Ruin is a gift. Ruin is the road
 to transformation.
 
 The meaning of life is to find your gift. The purpose of life is to give it away.
+
+Beware the barrenness of a busy life.
