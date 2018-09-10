@@ -583,3 +583,5 @@ Beware the barrenness of a busy life.
 Do not wish for an easy life. Wish for the strength to endure a difficult one.
 
 Do the thing you think you cannot do.
+
+Believe you can and you're halfway there.
