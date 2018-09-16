@@ -587,3 +587,5 @@ Do the thing you think you cannot do.
 Believe you can and you're halfway there.
 
 The only way to do great work is to love the work you do
+
+One day you will wake up and there won't be any more timeto do the things you've always wanted. Do it now.
