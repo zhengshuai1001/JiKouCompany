@@ -591,3 +591,5 @@ The only way to do great work is to love the work you do
 One day you will wake up and there won't be any more timeto do the things you've always wanted. Do it now.
 
 Create something today even if it sucks.
+
+Time goes on. So whatever you’re going to do, do it. Do it now. Don’t wait.
