@@ -596,3 +596,5 @@ Time goes on. So whatever you’re going to do, do it. Do it now. Don’t wait.
 
 When you are content to be simply yourself and don't compare
 or compete, everyone will respect you.
+
+Why fit in when you were born to stand out?
