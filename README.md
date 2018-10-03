@@ -598,3 +598,5 @@ When you are content to be simply yourself and don't compare
 or compete, everyone will respect you.
 
 Why fit in when you were born to stand out?
+
+Don't limit your challenges - challenge your limits.
