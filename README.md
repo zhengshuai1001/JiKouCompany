@@ -600,3 +600,5 @@ or compete, everyone will respect you.
 Why fit in when you were born to stand out?
 
 Don't limit your challenges - challenge your limits.
+
+I have decided to stick with love. Hate is too great a burden to bear.
