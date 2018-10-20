@@ -606,3 +606,5 @@ I have decided to stick with love. Hate is too great a burden to bear.
 The biggest room in the world is room for improvement.
 
 Be the friend you wish you had.
+
+The primary cause of unhappiness is never the situation but your thoughts about it.
